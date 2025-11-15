@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏫 Mahasiswa STIKOM El Rahma<br>🏡 Kabupaten-Tangerang<br>📖 My hobby is reading<br>👩‍🍳 Cooking<br>🍀 Have a chance every day<br>
+🏫 Mahasiswa STIKOM El Rahma<br>🏡 Kabupaten-Tangerang<br>📖 My hobby is reading<br>👩‍🍳 Cooking<br>🚗 Traveling<br>🍁23 Mei 2006<br>🍀 Have a chance every day<br>
 
 
 ## 🌐 Socials:
